@@ -12,9 +12,13 @@ Eat -> Sleep -> Code -> Repeat
 - 📫 How to reach me : jain.sakshii0901@gmail.com
 
 More about me:
+
 Interests : Programming, Chess
+
 Hobbies : Book reading, Painting, Blogging
+
 Communities : Superposition, IJHSR, Women Who Code
+
 
 
 Linkedin : https://www.linkedin.com/in/uinjkledjoisef/
