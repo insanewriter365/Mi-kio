@@ -21,9 +21,4 @@ Communities : Superposition, IJHSR, Women Who Code
 
 
 
-Linkedin : https://www.linkedin.com/in/uinjkledjoisef/
-
-
-
-
-
+Linkedin : https://www.linkedin.com/in/uinjk
